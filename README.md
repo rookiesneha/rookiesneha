@@ -1,4 +1,4 @@
-# 💫 About Me:
+# Hello there!
 Curious tech learner - learning bit by bit everday!
 
 
